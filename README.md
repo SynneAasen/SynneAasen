@@ -1,4 +1,4 @@
-## Hei!, I`m Synne 🫶
+## Hei, I`m Synne 🫶
 
 🧠 I studie physics <br/>
 🔬 I love Albert Einstein <br/>
